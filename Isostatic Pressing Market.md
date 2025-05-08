@@ -1,4 +1,4 @@
-#Isostatic Pressing Market Global Industry Historical Background, Industry Structure, Development, Demographics, Developing Factors
+Isostatic Pressing Market Global Industry Historical Background, Industry Structure, Development, Demographics, Developing Factors
 
 # Isostatic Pressing Market
 
